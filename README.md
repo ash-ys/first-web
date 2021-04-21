@@ -1,1 +1,0 @@
-# ash-ys.github.io
